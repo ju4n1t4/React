@@ -14,8 +14,6 @@
 
 ## Información Importante
 
-hola
-
 
 
 
